@@ -1,3 +1,7 @@
 # example
 ลองใช้งาน
-sxfgffghfdghffgh
+fghgfg
+5
+6
+2
+4
